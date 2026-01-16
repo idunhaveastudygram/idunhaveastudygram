@@ -1,1 +1,1 @@
-# idunhaveastorygram
+# idunhaveastudygram
